@@ -38,3 +38,15 @@ Tel: +250 795971611
 ---
 
 **Murakoze guhitamo S-Tech Installers! Tugufasha kubaka ejo hazaza hawe hadakemangwa.**
+This is the official homepage of **S-Tech Installers**, a company specializing in electrical installation and maintenance services. We help homes and businesses with electrical wiring, repair services, and safety consultations.
+
+### 📋 Our services:
+- Electrical installation in new buildings
+- Electrical maintenance and repair
+- Electrical safety advice
+- Installation of panels, sockets, and accessories
+
+### 📞 Contact us:
+- WhatsApp: [+250795971611]
+- Email: niyimumpayeelvis@gmail.com
+- Website:www.s-tech installers.com
